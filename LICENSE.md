@@ -1,4 +1,4 @@
-# 
+# Personalizado Adobe Premiere Pro filtros para Mac OS | Ultimato Adobe Premiere Pro filtros para PC Windows. Com animação de quadros-chave e funcionalidade DAW — otimizado para máximo desempenho em cada plataforma.
 
 
 
